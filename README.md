@@ -13,3 +13,7 @@ Pricing ;
 7,53 $ or 300 TL or 30m OWO cash
 
 My Discord address : tobby_0
+
+![Oto Reklam](oto%20reklam.PNG)
+
+
