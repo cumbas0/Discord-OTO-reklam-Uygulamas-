@@ -1,1 +1,2 @@
-# Discord-OTO-reklam-Uygulamas-
+# Discord-OTO-reklam-Uygulaması
+![Uploading image.png…]()
